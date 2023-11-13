@@ -1,0 +1,1 @@
+Kristers Ščuckis - gāja labi, jo lielāko daļu sapratu un zinu cerams ka būs pareizi. 
